@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @izozu
+- 👀 I’m interested in true and false
+- 🌱 I’m currently learning to survive
+- 💞️ I’m looking to collaborate on better world
+- 📫 How to reach me? izozu@gmail.com
