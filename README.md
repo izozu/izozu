@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @izozu
+- 👋 Hi, I’m @izozu SO WHAT
 - 👀 I’m interested in true and false
 - 🌱 I’m currently learning to survive
 - 💞️ I’m looking to collaborate on better world
